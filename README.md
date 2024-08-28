@@ -1,1 +1,1 @@
-# Mindtales
+# Mindtales Magazine
